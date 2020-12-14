@@ -1,1 +1,1 @@
-# RS-Singolo
+https://kichukegor.github.io/RS-Singolo/
