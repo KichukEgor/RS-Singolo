@@ -1,1 +1,1 @@
-https://kichukegor.github.io/singolo/
+https://kichukegor.github.io/RS-Singolo/
